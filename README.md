@@ -1,1 +1,1 @@
-# sngjky.github.io
+# snjgky.github.io
